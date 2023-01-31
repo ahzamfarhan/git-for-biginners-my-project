@@ -1,3 +1,3 @@
-Author: Farhan Ali
+Author: Farhan Ali Guddu
 
 Twitter: FarhanQuazi
